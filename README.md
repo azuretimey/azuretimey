@@ -3,3 +3,4 @@
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![@impatienx on tumblr](https://files.catbox.moe/zm2rxu.png) 
+[prns.cc](https://pronouns.cc/@frostbyte). [ATABOOK](https://houndshell.atabook.org) 
