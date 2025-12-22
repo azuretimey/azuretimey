@@ -11,3 +11,8 @@
 <p align="center">
   <img src="https://files.catbox.moe/43fgth.gif">
 </p>
+<p align="center">
+always iwec unless close<br>
+  my beautiful partner @GHOSTBUSTERS-SFX<br>
+  <a href="https://fluffle.cc/bloxburg">fluffle.cc</a> <a href="https://pronouns.cc/@frostbyte">pronouns.cc</a>
+</p>
