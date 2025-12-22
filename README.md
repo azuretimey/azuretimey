@@ -1,6 +1,13 @@
-
+<p align="center">
+  <img src="https://files.catbox.moe/dodz1x.png">
+  <img src="https://github.com/user-attachments/assets/e70f2424-534c-43eb-b1b3-46f79e265588">
+</p>
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/33e02719a6c571c61f1b04ff24558fef/6b874aba774f5bee-ea/s2048x3072/8793723a719e0244d94c2fb818bdffec63aa8ac8.pnj" />
-  <img src="https://64.media.tumblr.com/598186d7a7d95f3f080c584ef0f6f5d2/6b874aba774f5bee-0e/s2048x3072/d00eb291822f2ba62ca5fec111b69763d76b3f27.gifv"/>
+ 𝙑𝙀𝙎𝙋𝙀𝙍 <sup>or</sup> 𝙑𝙀𝙎<br>
+  𝘏𝘌 ﹒𝘚𝘏𝘌 ﹒𝘛𝘏𝘌𝘠<br>
+  𝘎𝘦𝘯𝘥𝘦𝘳𝘧𝘭𝘶𝘪𝘥 , 𝘖𝘮𝘯𝘪𝘴𝘦𝘹𝘶𝘢𝘭 , 𝘎𝘳𝘦𝘺𝘳𝘰𝘮𝘢𝘯𝘵𝘪𝘤<br>
+</p>
+<p align="center">
+  <img src="https://files.catbox.moe/43fgth.gif">
 </p>
